@@ -1,4 +1,4 @@
-# akash
+# Akash
 # Phone: +917358724724
 # Mail: akashreo5@gmail.com
 # Linkedin: https://www.linkedin.com/in/akash-j-20308a27a
