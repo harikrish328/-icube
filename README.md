@@ -1,7 +1,8 @@
 # Akash
 # Phone: +917358724724
-# Mail: akashreo5@gmail.com
-# Linkedin: https://www.linkedin.com/in/akash-j-20308a27a
+# Mail: akash@eipryl.com
+# Linkedin: [https://www.linkedin.com/in/akash-j-20308a27a](https://www.linkedin.com/in/akash-j-20308a27a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+# skype : live:.cid.a95e7a8d3697f38d
 # EDUCATION
 A professional and hardworking MBA graduate in Business Analytics, I am a seasoned professional in Business Development and Marketing with over 4 years of experience. Known for my expertise in driving revenue growth,establishing strategic partnerships, and leading successful market expansion initiatives, I excel in identifying new business opportunities and building strong client relationships. With key skills in Business Development &Strategy, Market Research & Analysis, and Client Relationship Management, I am adept at negotiation, innovative thinking, and have a relentless pursuit of success. Being multilingual and proficient in CRM & Sales Tools like Salesforce and HubSpot, I am eager to leverage my skills and experiences to drive strategic initiatives and deliver impactful results in my next professional endeavor.
 Anna University
